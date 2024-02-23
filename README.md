@@ -1,0 +1,2 @@
+# krit
+“Krit” meaning “Inculcating” 
